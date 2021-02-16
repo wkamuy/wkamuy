@@ -1,4 +1,4 @@
-# Hi :smile:, I'm wkamuy.
+# Hi, I'm wkamuy.
 
 
 
